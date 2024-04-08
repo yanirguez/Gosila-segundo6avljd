@@ -1,1 +1,0 @@
-# Gosila-segundo6avljd
